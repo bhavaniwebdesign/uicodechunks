@@ -1,0 +1,1 @@
+this file going to explins about all tips and tricks
